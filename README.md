@@ -1,3 +1,3 @@
 # Dylantix-Network-Filer
  
-### Eftersom nogen prøver at sælge dylantixs filer, har vi valgt at udgive dem.
+### Eftersom en person ved navnet "Olsen1157#9489" prøver at sælge dylantixs filer, har vi valgt at udgive dem.
